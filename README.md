@@ -1,1 +1,0 @@
-# jpangj.github.io
